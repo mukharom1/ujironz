@@ -1,3 +1,0 @@
-**RONZ DEVELOPER**
-
-© RonzDev
